@@ -6,4 +6,4 @@
 18120413 - Đỗ Liên Khoa
 
 -----
-File [tiến độ](https://www.google.com/url?q=https://fithcmus.zoom.us/j/91553972952?pwd%3DSmROY1JLTEYzV1g1TEVjTjhkdGwxZz09&sa=D&source=calendar&ust=1650535316724609&usg=AOvVaw2ctmBLcsvz-Fe3hzjtn9Xa) nhóm.
+File [tiến độ](https://docs.google.com/spreadsheets/d/1CbVLRTuioRoDTVD4G4dNM3t8c6n5AVqy0-_K_UOWRGg/edit?usp=drive_web&ouid=111913730082387023039) nhóm.
